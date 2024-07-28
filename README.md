@@ -1,3 +1,4 @@
 # ANIMUS
 
-![image](https://github.com/user-attachments/assets/08bfe1e4-2e03-42ea-a978-cc04a98f0c9d)
+![image](https://github.com/user-attachments/assets/1963956b-4700-49b4-b96f-3fb48c889e7a)
+
